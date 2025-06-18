@@ -1,12 +1,12 @@
 # Matthew 6:5 The Lord’s prayer
-When you pray, you shall not be as the hypocrites, for they love to stand and pray in the synagogues and in the corners of the streets, that they my be seen by men. Most certainly, I tell you, they have received their reward. But you, when you pray, enter into your inner room, and having shut your door, pray to your Father who is in secret, and your Father who sees in secret will reward you openly.
-In praying, don’t use vain repetitions, as the Gentiles do; for they think that they will be heard for their much speaking. Therefore don’t be like them, for your Father knows what things you need, before you ask him.
-Pray like this:  `Our Father in heaven, may your name be kept holy.
-Let your Kingdom come. Let your will be done, as in heaven, so on earth.
-Give us today our daily bread.
-Forgive us our debts, as we also forgive our debtors.
-Bring us not into temptation, but deliver us from the evil one. 
-For yours is the Kingdom, the power, and the glory forever. 
+When you pray, you shall not be as the hypocrites, for they love to stand and pray in the synagogues and in the corners of the streets, that they my be seen by men. Most certainly, I tell you, they have received their reward. But you, when you pray, enter into your inner room, and having shut your door, pray to your Father who is in secret, and your Father who sees in secret will reward you openly.  
+In praying, don’t use vain repetitions, as the Gentiles do; for they think that they will be heard for their much speaking. Therefore don’t be like them, for your Father knows what things you need, before you ask him.  
+Pray like this:  `Our Father in heaven, may your name be kept holy.  
+Let your Kingdom come. Let your will be done, as in heaven, so on earth.  
+Give us today our daily bread.  
+Forgive us our debts, as we also forgive our debtors.  
+Bring us not into temptation, but deliver us from the evil one.   
+For yours is the Kingdom, the power, and the glory forever.   
 Amen. `
 
 # Matthew 7:15 A Tree and Its Fruit
