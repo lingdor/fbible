@@ -12,7 +12,7 @@ Amen. `
 # Matthew 7:15 A Tree and Its Fruit
 Beware of false prophets, who came to you in sheep’s clothing, but inwardly are ravening wolves. By their fruits you will know them. Do you gather grapes from thorns, or figs from thistles?Even so, every good tree produces good fruit; but the corrupt tree produces evil fruit. A good tree can’t produce evil fruit, neither can a corrupt tree produce good fruit. Every tree that does’t grow good fruit is cut down, and thrown into the fire. Therefore, by their fruits you will know them. 
 
-Not everyone who says to me `Lord, Lord,` will enter into the Kingdom of Heaven; but he who does the all of my Father who is in heaven. Many will tell me in that day, `Lord,Lord, didn’t we prophesy in your name , in your name cast out demons, and in your name do many mighty words?` Then I will tell them, `I never knew you, Depart from me ,you who work iniquity.`
+Not everyone who says to me `Lord, Lord,` will enter into the Kingdom of Heaven; but he who does the all of my Father who is in heaven. Many will tell me in that day, `Lord,Lord, didn’t we prophesy in your name , in your name cast out demons, and in your name do many mighty works?` Then I will tell them, `I never knew you, Depart from me ,you who work iniquity.`
 
 
 
